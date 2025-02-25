@@ -8,9 +8,7 @@ Kod yazmak benim için sadece bir teknik beceri değil, aynı zamanda bir proble
 Bunların yanı sıra e-ticaret ve yapay zeka alanlarına da büyük bir ilgim var. Shopify üzerinden dropshipping yapmayı planlıyor ve bunun için Instagram algoritmasını daha iyi anlamaya çalışıyorum 📈. Dijital pazarlama stratejileri, müşteri davranışları ve veri analizi gibi konularda kendimi geliştirerek gelecekte bu alanlarda daha yetkin hale gelmeyi hedefliyorum.
 
 🚀 Teknik ve Sosyal Gelişim
-Üniversite hayatımda yalnızca teknik becerilere değil, aynı zamanda sosyal gelişime de önem veriyorum. IEEE gibi teknik topluluklarda aktif olarak görev alıyor, ekip çalışmasını deneyimliyor ve sektörden insanlarla bağlantılar kuruyorum 🤝.
-
-Ayrıca, sponsorluk kulübünde görev alarak organizasyonlara destek sağlıyor, iş dünyasıyla iletişim kurarak önemli deneyimler kazanıyorum 📩. Organizasyon yönetimi ve iletişim becerilerimi geliştirmek, gelecekte kariyerime büyük katkı sağlayacağına inandığım alanlar arasında yer alıyor.
+Üniversite hayatımda yalnızca teknik becerilere değil, aynı zamanda sosyal gelişime de önem veriyorum.
 
 Teknolojiyi sadece tüketmek yerine, üretken bir şekilde kullanmayı hedefliyorum. Yeni yazılım trendlerini takip etmek, farklı projelerde yer almak ve gerektiğinde yeni teknolojilere hızla adapte olmak benim için çok önemli. Sürekli gelişim odaklı bir bakış açısıyla hareket ederek, disiplinli ve planlı bir şekilde ilerlemeye çalışıyorum.
 
